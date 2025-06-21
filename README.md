@@ -22,3 +22,4 @@ How to Use Bdg Game Invite Code -
 Final Thought
 
 So The Final Answer Of Bdg Game Invite Code is "5245213956295" & "5661713781304"
+#bdggameinvitecode #bdginvitecode
